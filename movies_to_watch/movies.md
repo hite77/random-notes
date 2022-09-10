@@ -3,55 +3,54 @@
 - elvis sept 2 — hbo max
 
 # From Library
-- **ghostbusters** afterlife 2021
 - once upon a time in hollywood — requested
 - meet dave — requested
 - band aid — requested
+- pirate radio —  requested
 
 # Hbo streaming
-- 32 3:10 to yuma — 11 of 12
-- 35 inside man — 13 of 15
+- 3:10 to yuma — 11 of 12
+- inside man — 13 of 15
 - san andreas — 43
 
 # Streaming
-- 7 wanted(46) — 7. netflix stream
-- 8 takers(32) — 8 of 8. — on netflix
-- 9 the space between us(9) — 9 of 9 netflix stream
-- 10 public enemies(20) — 16 or 17. netflix streaming
-- rambo(27) — netflix streaming
-- 24 the time machine — 7 of 8 (2002?) paramount
-- 27 repo men — 9 of 10 — prime
-- 40 knight and day — 15 of 17 — paramount
+- morbius — hundreds -- netflix
+- wanted — 7. netflix stream
+- takers — 8 of 8. — on netflix
+- the space between us(9) — 9 of 9 netflix stream
+- public enemies(20) — 16 or 17. netflix streaming
+- rambo — netflix streaming
+- the time machine — 7 of 8 (2002?) paramount
+- repo men — 9 of 10 — prime
+- knight and day — 15 of 17 — paramount
 - american gangster —  rewatch — peacock 2007
 - arrested development series — netflix
 
 # No streaming
-- 31 pirate radio —  11 of 11
-- 33 the informant! — 12 of 12
-- 34 edge of darkness — 12-15… 2010 year
-- 36 good night, and good luck — 13 of 15
-- 37 yes man — 12 of 16 — 2008
-- 38 hereafter — 15 of 16
-- 39 i am number four — 15 of 16 2011
-- 41 white boy rick — 17 of 19
-- 42 the tourist — 20 of 23
-- 43 the hustle — 23 of 24
-- 45 green book — 30 of 33 2018
-- 46 fury —  28 of 33 (2014/2015)
-- 48 selma — 44 of 46
-- 49 money monster — 44 of 46
-- 52 vice — 55 of 60
+- the informant! — 12 of 12
+- edge of darkness — 12-15… 2010 year
+- good night, and good luck — 13 of 15
+- yes man — 12 of 16 — 2008
+- hereafter — 15 of 16
+- i am number four — 15 of 16 2011
+- white boy rick — 17 of 19
+- the tourist — 20 of 23
+- the hustle — 23 of 24
+- green book — 30 of 33 2018
+- fury —  28 of 33 (2014/2015)
+- selma — 44 of 46
+- money monster — 44 of 46
+- vice — 55 of 60
 - escape room tournament of champions — 55
 - escape room — 58
-- 53 50 first dates — library has it
-- 54 aloha — lots
-- 55 mr holmes — many copies
-- 56 free state of jones — lots
-- 57 on the basis of sex — 71 of 89
+- 50 first dates — library has it
+- aloha — lots
+- mr holmes — many copies
+- free state of jones — lots
+- on the basis of sex — 71 of 89
 - uncharted —  hundreds 2022
-- morbius — hundreds
-- 58 the handmaids tale season 4 — 23 of 41 2021
-- 59 better call saul season 6 — not released yet tivo
+- the handmaids tale season 4 — 23 of 41 2021
+- better call saul season 6 — not released yet tivo
 
 # Tivo
 - rango
