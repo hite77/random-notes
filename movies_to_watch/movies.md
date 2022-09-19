@@ -1,12 +1,12 @@
 # Currently watching
 - **the orville** — disney+
-- elvis sept 2 — hbo max
+- downton abbey 6/25
 
 # From Library
-- once upon a time in hollywood — requested
-- meet dave — requested
-- band aid — requested
-- pirate radio —  requested
+- once upon a time in hollywood
+- meet dave
+- band aid
+- pirate radio
 
 # Hbo streaming
 - 3:10 to yuma — 11 of 12
@@ -59,7 +59,6 @@
 - abominable 1/14/22
 - the french dispatch 3/22
 - the last airbender 4/3/22
-- doctor who 4/17
 - a good day to die hard 4/26
 - death on the nile 5/6
 - A black lady sketch show 5/13
@@ -75,10 +74,7 @@
 - the book thief 5/24
 - hellboy 1, and 2 5/24 (streaming as well)
 - the wolverine 5/25
-- old 6/6
 - chitty chitty bang bang 6/10
 - the relic 6/22
-- downton abbey 6/25
 - better call saul 8/15
 - the walking dead 8/29
-- rockies (3-8/29)
