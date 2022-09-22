@@ -1,19 +1,23 @@
 # Currently watching
+
 - **the orville** — disney+
 - downton abbey 6/25
 
 # From Library
-- once upon a time in hollywood
+
 - meet dave
 - band aid
-- pirate radio
+- the informant!
+- edge of darkness
 
 # Hbo streaming
+
 - 3:10 to yuma — 11 of 12
 - inside man — 13 of 15
 - san andreas — 43
 
 # Streaming
+
 - morbius — hundreds -- netflix
 - wanted — 7. netflix stream
 - takers — 8 of 8. — on netflix
@@ -23,12 +27,11 @@
 - the time machine — 7 of 8 (2002?) paramount
 - repo men — 9 of 10 — prime
 - knight and day — 15 of 17 — paramount
-- american gangster —  rewatch — peacock 2007
+- american gangster — rewatch — peacock 2007
 - arrested development series — netflix
 
 # No streaming
-- the informant! — 12 of 12
-- edge of darkness — 12-15… 2010 year
+
 - good night, and good luck — 13 of 15
 - yes man — 12 of 16 — 2008
 - hereafter — 15 of 16
@@ -37,7 +40,7 @@
 - the tourist — 20 of 23
 - the hustle — 23 of 24
 - green book — 30 of 33 2018
-- fury —  28 of 33 (2014/2015)
+- fury — 28 of 33 (2014/2015)
 - selma — 44 of 46
 - money monster — 44 of 46
 - vice — 55 of 60
@@ -48,11 +51,12 @@
 - mr holmes — many copies
 - free state of jones — lots
 - on the basis of sex — 71 of 89
-- uncharted —  hundreds 2022
+- uncharted — hundreds 2022
 - the handmaids tale season 4 — 23 of 41 2021
 - better call saul season 6 — not released yet tivo
 
 # Tivo
+
 - rango
 - jingle all the way recorded 12/12/21
 - jingle all the way 2 12/12/21
