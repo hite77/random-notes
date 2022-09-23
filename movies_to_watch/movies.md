@@ -6,9 +6,9 @@
 # From Library
 
 - meet dave
-- band aid
 - the informant!
 - edge of darkness
+- good night, and good luck
 
 # Hbo streaming
 
@@ -32,7 +32,6 @@
 
 # No streaming
 
-- good night, and good luck — 13 of 15
 - yes man — 12 of 16 — 2008
 - hereafter — 15 of 16
 - i am number four — 15 of 16 2011
