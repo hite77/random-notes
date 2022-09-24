@@ -5,10 +5,10 @@
 
 # From Library
 
-- meet dave
 - the informant!
 - edge of darkness
 - good night, and good luck
+- yes man
 
 # Hbo streaming
 
@@ -32,7 +32,6 @@
 
 # No streaming
 
-- yes man — 12 of 16 — 2008
 - hereafter — 15 of 16
 - i am number four — 15 of 16 2011
 - white boy rick — 17 of 19
