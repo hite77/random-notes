@@ -5,10 +5,10 @@
 
 # From Library
 
-- ## **edge of darkness**
 - good night, and good luck
 - yes man
 - hereafter
+- white boy rick
 
 # Hbo streaming
 
@@ -33,7 +33,6 @@
 # No streaming
 
 - i am number four — 15 of 16 2011
-- white boy rick — 17 of 19
 - the tourist — 20 of 23
 - the hustle — 23 of 24
 - green book — 30 of 33 2018
