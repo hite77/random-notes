@@ -5,10 +5,10 @@
 
 # From Library
 
-- the informant!
-- edge of darkness
+- ## **edge of darkness**
 - good night, and good luck
 - yes man
+- hereafter
 
 # Hbo streaming
 
@@ -32,7 +32,6 @@
 
 # No streaming
 
-- hereafter — 15 of 16
 - i am number four — 15 of 16 2011
 - white boy rick — 17 of 19
 - the tourist — 20 of 23
