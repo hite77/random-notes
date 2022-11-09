@@ -2,7 +2,6 @@
 
 - **the orville** — disney+
 - downton abbey 6/25
-- morbius — hundreds -- netflix
 
 # From Library
 
