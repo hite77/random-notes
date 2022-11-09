@@ -2,13 +2,12 @@
 
 - **the orville** — disney+
 - downton abbey 6/25
+- morbius — hundreds -- netflix
 
 # From Library
 
-- good night, and good luck
 - yes man
 - white boy rick
-- i am number four
 
 # Hbo streaming
 
@@ -18,7 +17,6 @@
 
 # Streaming
 
-- morbius — hundreds -- netflix
 - wanted — 7. netflix stream
 - takers — 8 of 8. — on netflix
 - the space between us(9) — 9 of 9 netflix stream
@@ -32,6 +30,7 @@
 
 # No streaming
 
+- Wakefield movie Cranston in it -- verify if stream
 - the tourist — 20 of 23
 - the hustle — 23 of 24
 - green book — 30 of 33 2018
