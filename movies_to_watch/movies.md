@@ -5,8 +5,11 @@
 
 # From Library
 
-- yes man
 - white boy rick
+- superfly
+- The Girl in the Spider's Web
+- The Equalizer
+- The Equalizer 2
 
 # Hbo streaming
 
@@ -47,6 +50,8 @@
 - uncharted — hundreds 2022
 - the handmaids tale season 4 — 23 of 41 2021
 - better call saul season 6 — not released yet tivo
+- searching  --> mac screen for most of the movie.
+- the padre
 
 # Tivo
 
@@ -60,13 +65,10 @@
 - death on the nile 5/6
 - A black lady sketch show 5/13
 - romeo and juliet 5/16
-- real steel 5/20
 - dear evan hansen 5/21
 - west side story 5/21
 - king richard 5/21
 - the hobbit: an unexpected journey 5/22
-- assassins 5/22
-- man of steel 5/22
 - much ado about nothing 5/24
 - the book thief 5/24
 - hellboy 1, and 2 5/24 (streaming as well)
