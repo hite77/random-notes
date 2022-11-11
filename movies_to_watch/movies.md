@@ -2,10 +2,10 @@
 
 - **the orville** — disney+
 - downton abbey 6/25
+- **a good day to die hard** 4/26
 
 # From Library
 
-- white boy rick
 - superfly
 - The Girl in the Spider's Web
 - The Equalizer
@@ -61,7 +61,6 @@
 - abominable 1/14/22
 - the french dispatch 3/22
 - the last airbender 4/3/22
-- a good day to die hard 4/26
 - death on the nile 5/6
 - A black lady sketch show 5/13
 - romeo and juliet 5/16
