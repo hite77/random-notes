@@ -6,9 +6,6 @@
 
 # From Library
 
-- superfly
-- The Girl in the Spider's Web
-- The Equalizer
 - The Equalizer 2
 
 # Hbo streaming
@@ -52,6 +49,8 @@
 - better call saul season 6 — not released yet tivo
 - searching  --> mac screen for most of the movie.
 - the padre
+- the front runner
+- the wife
 
 # Tivo
 
