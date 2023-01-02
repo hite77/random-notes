@@ -6,8 +6,6 @@
 
 # From Library
 
-- The Equalizer 2
-
 # Hbo streaming
 
 - 3:10 to yuma — 11 of 12
